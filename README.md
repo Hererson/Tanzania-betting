@@ -3,7 +3,7 @@
 Many betting platforms have been created, but only proven sites guarantee the convenience of work and the safety of your own money.
 Parimatch is considered one of the best bookmakers that guarantee fast payouts and favorable conditions. Users note the simplicity of the interface, as well as ease of navigation. Beginners will understand everything, but if you have any questions, you can contact the administration and clarify all the information.
 
-<a href='https://hostingkartinok.com/show-image.php?id=adf88233683bc3546a38f165f73e5fd2'><img style="width:100%" src='https://s8.hostingkartinok.com/uploads/images/2020/12/adf88233683bc3546a38f165f73e5fd2.jpg' alt='Parimatch in Tanzania'/></a>
+<img style="width:100%" src='https://s8.hostingkartinok.com/uploads/images/2020/12/adf88233683bc3546a38f165f73e5fd2.jpg' alt='Parimatch in Tanzania'/>
 
 <h2>Types of bets and sports events</h2>
 Now you don't need to review tons of sheets to choose the best bid for your conditions. You can open a website, quickly activate an event, and find the best solution. Most bets are placed on the following events:
