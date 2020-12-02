@@ -13,7 +13,7 @@ Now you don't need to review tons of sheets to choose the best bid for your cond
 • possession of the ball or puck;
 • yellow or red cards;
 • fouls and offsides.
-This is just a small list of current betting destinations. You can learn more about all parameters and indicators on Parimatch, where you can find all the latest information and conditions for making bets. Sometimes the choice of the optimal bet does not depend on the indicators, and players choose their favorite competitions or teams.
+This is just a small list of current betting destinations. You can learn more about all parameters and indicators on <a href="https://parimatch.co.tz/en/">Parimatch</a> where you can find all the latest information and conditions for making bets. Sometimes the choice of the optimal bet does not depend on the indicators, and players choose their favorite competitions or teams.
 <h2>Financial side of the office</h2>
 Registration is only available for adult players. After that, the user gets access to Deposit replenishment in various ways:
 • Bank cards;
